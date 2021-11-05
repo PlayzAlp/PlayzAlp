@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PlayzAlp
+- 👋 Hi, I’m @PlayzAlp / Tussy
 - 👀 I’m interested in aerospace enginner
 - 🌱 I’m currently learning mathamatics and tech
 - 💞️ I’m looking to collaborate on some peeps to work with. 
